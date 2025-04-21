@@ -1,3 +1,3 @@
 # deeks
 hello world 
-i have dicided something that i have never to forot
+i have decided something that i have never to forot
